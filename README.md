@@ -1,0 +1,1 @@
+- Hi i'm livia(livy), i'm a programmer student on brazil, i'm starting to learn programming, so i'll try to do my best.
