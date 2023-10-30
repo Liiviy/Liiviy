@@ -4,7 +4,7 @@
 
 In love with CyberSecurity, Reverse-Engeneering and Game-Hacking.
 
-Looking to be better than i was yesterday.
+Looking to be better than yesterday.
 
 Pronous: She/Her.
 <br />
