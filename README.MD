@@ -8,7 +8,11 @@ Looking to be better than yesterday.
 
 Pronous: She/Her.
 <br />
-Years Old: 18.
+18 Y.O
+<br />
+en-US / pt-BR / FR
+<br />
+
 
 
 ---
