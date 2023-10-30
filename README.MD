@@ -6,7 +6,8 @@ In love with CyberSecurity, Reverse-Engeneering and Game-Hacking.
 
 Looking to be better than i was yesterday.
 
-Pronous: She/Her
+Pronous: She/Her.
+<br />
 Years Old: 18.
 
 
